@@ -1,2 +1,2 @@
-# Nishitmst
+# Nishit Patel
 University MST
