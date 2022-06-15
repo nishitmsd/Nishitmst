@@ -1,3 +1,3 @@
-# Nishit Patel napn9w@umsystem.edu
-University MST 
+# Nishit Patel 
+University MST napn9w@umsystem.edu 
 
